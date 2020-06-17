@@ -124,7 +124,7 @@
                 Whenever i was down<br>
                 We'd talk on the playground<br>
                 <br>
-                And all of sundden a feeling that made us feel so blue<br>
+                And all of sudden a feeling that made us feel so blue<br>
                 And i will never forgive myself for not showing you the truth<br>
                 Cause i never said<br>
                 I love you<br>
